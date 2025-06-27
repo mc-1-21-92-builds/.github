@@ -1,5 +1,5 @@
 # Minecraft 1.21.92 – Discover the Latest Blocky Adventure
-## 𝓓𝓸𝔀𝓷𝓵𝓸𝓪𝓭: [Minecraft 1.21.90](https://tinyurl.com/2kj4kj2k)
+## 𝓓𝓸𝔀𝓷𝓵𝓸𝓪𝓭: [Minecraft 1.21.92](https://tinyurl.com/2kj4kj2k)
 
 ![image](https://github.com/user-attachments/assets/1c5124f6-1f36-42d1-bb9c-72ec6b40d350)
 
